@@ -4,4 +4,4 @@ i hate the phone law because i love using my phone in it helps me with school wo
 # September 8, 2025
 the computer science program can help me create games in help me get a job involving computers  in also i know how to build pcs so that can really help me get the job i want 
 
-September 16, 2025 Artificial intelligence can help you with your work like you can use the artifiacial inteligence in learn from it  in also it can help you learn by using the step by step in learning from that .
+September 16, 2025 We can create things with artifical intellingence to pick up things on the the side of the rode into pick up trash in to help old people out in we can also program them to help us do other things in the world...
