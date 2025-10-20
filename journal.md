@@ -35,3 +35,11 @@ Bouncing title animation and hover effects
 Responsive design that works on all devices
 Comic Sans font for a playful feel
 Try answering a few questions and see how the confetti celebrates your correct answers! Want me to modify the difficulty level, change the math operation, or adjust anything else about the game?
+# october 20, 2025 
+| Name     | Class | Seat |
+| :------- | :---- | :--- |
+| Franklin | second  |   91a   |
+| Hardeep  | third      | 61f     |
+| Marla    |  one     | 35b     |
+
+----
