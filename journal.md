@@ -43,3 +43,11 @@ Try answering a few questions and see how the confetti celebrates your correct a
 | Marla    |  one     | 35b     |
 
 ----
+# october 27 ,2025
+| Name     | main dish  | dessert |
+| :------- | :---- | :--- |
+| Fiona | gado gado  |   creme brulee   |
+| tobias  | shrimp ceviche     | french apple cake    |
+| leanne    |  beef washington    | rasperry    |
+
+
