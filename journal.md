@@ -49,5 +49,9 @@ Try answering a few questions and see how the confetti celebrates your correct a
 | Fiona | gado gado  |   creme brulee   |
 | tobias  | shrimp ceviche     | french apple cake    |
 | leanne    |  beef washington    | rasperry    |
-
+# november 3 , 2025
+1. What’s the problem? the problem is that food insercurity affecting the population like children in the elderly
+2. apps and websites could connect prople to food banks and meal program
+3. lack of internet acecss privacy concerns and tech literacy
+4. a app so people know where to buy food in where to get it in they dont need internet access
 
