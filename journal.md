@@ -55,3 +55,5 @@ Try answering a few questions and see how the confetti celebrates your correct a
 3. lack of internet acecss privacy concerns and tech literacy
 4. a app so people know where to buy food in where to get it in they dont need internet access
 
+# November 10 , 2025
+I think technology change the way people connect during holidays i think most of them face time in steady seeing them in person so i think that kinda ruin the  holiday spirit .
