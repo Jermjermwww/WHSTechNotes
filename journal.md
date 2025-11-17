@@ -57,3 +57,5 @@ Try answering a few questions and see how the confetti celebrates your correct a
 
 # November 10 , 2025
 I think technology change the way people connect during holidays i think most of them face time in steady seeing them in person so i think that kinda ruin the  holiday spirit .
+# November 17 , 2025
+im am looking foward to thanks giving and eating chicken in saying what im thankful for 
