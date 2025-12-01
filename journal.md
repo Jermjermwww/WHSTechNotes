@@ -43,21 +43,21 @@ Try answering a few questions and see how the confetti celebrates your correct a
 | Marla    |  one     | 35b     |
 
 ----
-# october 27 ,2025
+# october 27,2025
 | Name     | main dish  | dessert |
 | :------- | :---- | :--- |
 | Fiona | gado gado  |   creme brulee   |
 | tobias  | shrimp ceviche     | french apple cake    |
 | leanne    |  beef washington    | rasperry    |
-# november 3 , 2025
+# november 3, 2025
 1. What’s the problem? the problem is that food insercurity affecting the population like children in the elderly
 2. apps and websites could connect prople to food banks and meal program
 3. lack of internet acecss privacy concerns and tech literacy
 4. a app so people know where to buy food in where to get it in they dont need internet access
 
-# November 10 , 2025
+# November 10, 2025
 I think technology change the way people connect during holidays i think most of them face time in steady seeing them in person so i think that kinda ruin the  holiday spirit .
-# November 17 , 2025
+# November 17, 2025
 im am looking foward to thanks giving and eating chicken in saying what im thankful for 
 # december 1, 2025
 coding drones help drones cordinate in fly left in right in that how you get the controls  in you also have to code the controllers to make them fly
