@@ -59,3 +59,5 @@ Try answering a few questions and see how the confetti celebrates your correct a
 I think technology change the way people connect during holidays i think most of them face time in steady seeing them in person so i think that kinda ruin the  holiday spirit .
 # November 17 , 2025
 im am looking foward to thanks giving and eating chicken in saying what im thankful for 
+# december 1, 2025
+coding drones help drones cordinate in fly left in right in that how you get the controls  in you also have to code the controllers to make them fly
