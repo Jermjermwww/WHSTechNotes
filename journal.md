@@ -65,3 +65,5 @@ coding drones help drones cordinate in fly left in right in that how you get the
 I used technology over the break by using my phone in also playing me ggame in using my computer for youtube ..
 # january 12, 2025
 Safe places are needed on the internet so people wont get cyber bullied and also some people need proof by using video of them getting bullied in uploading it to youtube or cyberbully app.
+# january 20, 2025
+by using things to  upload  in helping people get off the street .
