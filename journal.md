@@ -61,3 +61,7 @@ I think technology change the way people connect during holidays i think most of
 im am looking foward to thanks giving and eating chicken in saying what im thankful for 
 # december 1, 2025
 coding drones help drones cordinate in fly left in right in that how you get the controls  in you also have to code the controllers to make them fly
+# january 6, 2025
+I used technology over the break by using my phone in also playing me ggame in using my computer for youtube ..
+# january 12, 2025
+Safe places are needed on the internet so people wont get cyber bullied and also some people need proof by using video of them getting bullied in uploading it to youtube or cyberbully app.
