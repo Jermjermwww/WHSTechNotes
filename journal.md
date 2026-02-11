@@ -67,3 +67,5 @@ I used technology over the break by using my phone in also playing me ggame in u
 Safe places are needed on the internet so people wont get cyber bullied and also some people need proof by using video of them getting bullied in uploading it to youtube or cyberbully app.
 # january 20, 2025
 by using things to  upload  in helping people get off the street .
+# febuary 11/ 2026
+Yes i do enjoy watching football and my favorite team is the ravens 
