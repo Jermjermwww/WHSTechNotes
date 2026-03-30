@@ -71,3 +71,5 @@ by using things to  upload  in helping people get off the street .
 Yes i do enjoy watching football and my favorite team is the ravens 
 # March 23, 2026
 I think the odds of picking a perfect march madness team is 0000000000000.1 i think its possible but i also think its really hard.
+# march 30, 2026
+what suprised me was when duke lost in the tournament march madness
