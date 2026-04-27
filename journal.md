@@ -73,3 +73,5 @@ Yes i do enjoy watching football and my favorite team is the ravens
 I think the odds of picking a perfect march madness team is 0000000000000.1 i think its possible but i also think its really hard.
 # march 30, 2026
 what suprised me was when duke lost in the tournament march madness
+# April 27, 2026
+Technology hasn't just been a tool this week; it's become the primary lens through which we experience major events. From the precision of the 2026 NFL Draft to the global connectivity of the NBA Playoffs, digital innovation has shifted from being a background player to the main stage.   
